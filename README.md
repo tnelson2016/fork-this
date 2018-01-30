@@ -1,3 +1,3 @@
 # fork-this
 
-fork me? how about fork you, bud
+Put a fork in them, cuz UGA is done.
