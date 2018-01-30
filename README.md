@@ -1,3 +1,3 @@
 # fork-this
 
-Put a fork in them, cuz UGA is done.
+UGA is a small airport in Mongolia, I wish to visit there some day.
